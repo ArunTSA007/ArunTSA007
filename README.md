@@ -1,4 +1,4 @@
-#HI THERE👋🏻. I'M ARUN ✨
+HI THERE👋🏻. I'M ARUN ✨
 
 
 # 💫 About Me:
