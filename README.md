@@ -2,7 +2,7 @@ HI THERE👋🏻. I'M ARUN ✨
 
 
 # 💫 About Me:
-Student 👨🏻‍🎓<br>V V College of Engineering 🏫
+
 
 
 ## 🌐 Socials:
